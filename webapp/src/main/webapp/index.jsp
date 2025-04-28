@@ -1,1 +1,1 @@
-Hello, Welcome to great leaders from Bangalore and kerela
+Hello, Welcome to great leaders from Bangalore and Rourkela
